@@ -1,1 +1,1 @@
-# et3t3tt3t3t42t2.github.io
+[中文文档&DOCS](https://docs.hojun.cn/sakura/docs/)
